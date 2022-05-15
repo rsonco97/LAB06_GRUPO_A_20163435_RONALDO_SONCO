@@ -1,0 +1,2 @@
+# LAB06_GRUPO_A_20163435_RONALDO_SONCO
+repositorio laboratorio 6
